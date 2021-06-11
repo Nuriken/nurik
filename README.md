@@ -1,1 +1,1 @@
-# Nuriken.github.io
+# Nurik.github.io
